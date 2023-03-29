@@ -1,0 +1,1 @@
+Faile di inizio Napisan
